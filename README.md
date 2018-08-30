@@ -5,7 +5,7 @@ Name?
 
 Nicholas Stout
 
-Matthew Casagranda
+Matthew Casagranda.
 
 What do you tell people about your field of study at a party?
 
