@@ -23,4 +23,4 @@ What are the three most important tools/stategies you use for organizing your wo
 
 I use a kanban board, meaningful filenames, 
 
-The three most important tools/strategies for me when I organize my work are, having everything organized, keep up with my deadlines, get something done every time I work on said something. So I try not to waste any day away.
+The three most important tools/strategies for me when I organize my work are, having everything organized, keep up with my deadlines, get something done every time I work on said something. So I try not to waste any day away
